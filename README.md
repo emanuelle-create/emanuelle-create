@@ -2,7 +2,7 @@
 - 👀 I’m interested on adventures
 - 🌱 I’m currently learning to be a good friend
 - 💞️ I’m looking to collaborate o in the Lgbtqiapm+ community
-- 📫 How to reach plane, bus, subway, bike, skateboard, or even walking
+- 📫 reach to me in plane, bus, subway, bike, skateboard, or even walking
 
 <!---
 emanuelle-create/emanuelle-create is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
